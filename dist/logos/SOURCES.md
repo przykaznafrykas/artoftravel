@@ -1,0 +1,1 @@
+Airbnb, Tripadvisor, Facebook: Simple Icons v16 (CC0), via jsDelivr. GetYourGuide: official cdn.getyourguide.com/tf/assets/static/logos/gyg-logo.svg. Brand marks remain trademarks of their respective owners. Profile URLs supplied by the owner, 29 October 2026.

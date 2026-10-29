@@ -1,0 +1,1 @@
+Photos downloaded from the gallery of the user-provided Poland Art of Travel supplier profile, activity 1054400. https://www.getyourguide.com/gdansk-l1960/gdansk-wycieczka-piesza-po-starym-miescie-z-przewodnikiem-mnichem-t1054400/ . Supplied photographs are preserved, including existing face coverings.
